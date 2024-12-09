@@ -17,7 +17,7 @@ Com a versão Premium, os usuários desbloqueiam recursos exclusivos, como:
 - **Qualidade Full HD e 4K**: Vídeos de alta resolução.  
 - **Conteúdo atualizado**: Acesso aos lançamentos mais recentes de filmes e séries.  
 
-![64e0ca9c150f68191b452a9e](https://github.com/user-attachments/assets/9b529b66-1e05-4fad-9121-7a7c232868d0)
+![64e0ca9c150f68191b452a9e](https://github.com/user-attachments/assets/e52a5d48-49bc-444b-aa94-7057aec33b8b)
 
 ---
 
